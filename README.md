@@ -3,6 +3,7 @@ Hello, my name is Norton.
 He/Him  Bisexual **taken**
 
 
+
 DNI: proshippers, lustful people.
 
 I dont really interact cause i am highly introverted and enjoy the silence, also sometimes grumpy and arrogant.
