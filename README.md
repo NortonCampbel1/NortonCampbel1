@@ -1,8 +1,13 @@
 Hello, my name is Norton.
 
-He/Him  Bisexual
+He/Him  Bisexual **taken**
 
 
-DNI: people who make kys jokes, sexualise people w out their consent, sit = ship ppl, i avoid nortnaib or nortorph shippers becouse i had a bad history w em. Though i dont mind talking with them as long as they are respectful w my boundaries.
+DNI: proshippers, lustful people.
 
-Though asides that feel free to hide me if you are sensetive about it, its for your own comfort.
+I dont really interact cause i am highly introverted and enjoy the silence, also sometimes grumpy and arrogant.
+
+I have a thing i enjoy and its probably nortmike, or i guess just talking about them.
+
+
+Im not a multishipper so i dont really care about anything else, feel free to sit with your comf ship.
