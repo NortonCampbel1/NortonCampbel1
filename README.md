@@ -4,9 +4,9 @@ He/Him  Bisexual **taken**
 
 
 
-DNI: proshippers, lustful people.
+DNI: proshippers, flirty people, lustful people.
 
-I dont really interact cause i am highly introverted and enjoy the silence, also sometimes grumpy and arrogant.
+I dont really interact cos i am highly introverted and enjoy the silence, also sometimes grumpy and arrogant.
 
 I have a thing i enjoy and its probably nortmike, or i guess just talking about them.
 
