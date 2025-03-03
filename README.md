@@ -4,7 +4,7 @@ He/Him  Bisexual
 
 
 
-DNI: proshippers, flirty people, lustful people.
+DNI: proshippers, idc about anything else.
 
 I dont really interact cos i am highly introverted and enjoy the silence, also sometimes grumpy and arrogant.
 
