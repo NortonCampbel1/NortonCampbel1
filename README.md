@@ -2,7 +2,7 @@ Hello, my name is Norton.
 
 He/Him  Bisexual 
 
-single
+Single
 
 DNI: proshippers, idc about anything else.
 
