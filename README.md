@@ -2,7 +2,7 @@ Hello, my name is Norton.
 
 He/Him  Bisexual 
 
-Taken by Mike
+Not interested in dating
 
 DNI: proshippers, idc about anything else.
 
