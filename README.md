@@ -2,7 +2,7 @@ Hello, my name is Norton.
 
 He/Him  Bisexual 
 
-Not interested in dating
+Taken
 
 DNI: proshippers, idc about anything else.
 
@@ -12,3 +12,5 @@ I have a thing i enjoy and its probably nortmike, naibeli or i guess just matchi
 
 
 Im not a multishipper so i dont really care about anything else, feel free to sit anytime or talk about your interests.
+
+Feel free to Hide or Cuddle idm.
