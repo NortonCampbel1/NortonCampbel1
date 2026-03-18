@@ -2,9 +2,9 @@ Hello, my name is Norton.
 
 He/Him  Bisexual 
 
-DNI: proshippers, idc about anything else.
+DNI if youre one of those fictionkinners. They only cause drama and im not up for it.
 
-I dont really interact cos i am highly introverted and enjoy the silence, also sometimes grumpy and arrogant.
+I dont really interact cos i am highly introverted and anxious in public spaces.
 
 
 Feel free to Hide or Cuddle idm.
